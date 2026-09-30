@@ -1,3 +1,7 @@
 ## Hi there 👋
 
-![meu gif](https://www.tiktok.com/@ferchunime33/video/7690037532125367558)
+![meu gif](
+
+https://github.com/user-attachments/assets/22c3575c-70b5-4dad-b87f-411f2a07c898
+
+)
